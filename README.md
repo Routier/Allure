@@ -1,0 +1,1 @@
+![Uploading Allure-Report.jpg…]()
